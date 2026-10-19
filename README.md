@@ -1,4 +1,4 @@
-## Hi there 👋
+## Cherish every day of the youngest life !!!
 
 <!--
 **gaohan0524/gaohan0524** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
